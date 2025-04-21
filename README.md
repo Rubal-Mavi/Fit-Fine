@@ -6,7 +6,7 @@
 
 ## 📸 Live Preview
 
-👉 [Demo Website](https://fitandfine95.wordpress.com/)
+👉 [Demo Website](https://fitfine95.weebly.com/)
 
 ---
 
